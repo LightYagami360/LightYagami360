@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LightYagami360
 - 👀 I’m interested in learning python
 - 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate with Mayank idk whot to say
+- 💞️ I’m looking to collaborate with Mayank idk what to say
 - 📫 How to reach me . Whatsapp, only 6 - B students and some of my friends know my number but its obviously private
 - 😄 Pronouns: Seriously Pronouns???? he/him
 - ⚡ Fun fact: I am going to win win Kho Kho Competition
